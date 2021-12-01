@@ -12,3 +12,6 @@ I create this Cv as part of Foundation assigment for my course CMS & Development
 
 
 Bachelor in Web Development - Zealand Academy, Second Semester.</b></p>
+
+https://mi-designstudio.com/cv-maria-ines-foundation/
+
